@@ -1,5 +1,5 @@
 # financial-fissures
-Discombobulated Finance Equation Thanks in No Small Part to the Aforementioned Game of Games
+
 
 
 | Month       | Milestone - $677.36 | Mission Lane - $511.75 | Self - $244.12 |
